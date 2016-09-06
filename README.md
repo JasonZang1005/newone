@@ -1,3 +1,3 @@
 # newone
-one shot
-how do i do]
+one shot/n
+how do i do
